@@ -3,7 +3,7 @@
 2. ### Contact Info
    e-mail: **karlondon228@gmail.com**
    VK: **https://vk.com/z_qwerty_id**
-
+ 
 3. ### Summary
    #### A little bit about yourself:
    I’m curious, I like to be interested in something new.
